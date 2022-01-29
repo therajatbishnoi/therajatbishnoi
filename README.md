@@ -1,4 +1,4 @@
-![Rajat Bishnoi](https://github.com/therajatbishnoi/therajatbishnoi/raw/main/Github-Banner-video.mp4)
+![Rajat Bishnoi](https://github.com/therajatbishnoi/therajatbishnoi/raw/main/Github-Banner-video-gif.gif)
 
 #  👋 Hi there,
 ## Welcome here, If you love 😊 coding and development 👨‍💻 stuff and always get fasinated by the new market trends in technology.
