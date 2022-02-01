@@ -5,7 +5,7 @@
 
 
 - I'm currently working as Management Consultant Analyst in @Accenture,India.
-- Currently learning Javascript.
+- Currently learning JavaScript.
 - I ❤️ reading books!
 - Fact: Well if you don't see me working I will be doing things down below:
 - ⚆ Playing Games
